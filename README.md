@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to play video games all day
 - 💞️ I’m looking to collaborate on playing video games all day
 - 📫 How to reach me in a video game I'm playing all day
-- 😄 Pronouns: She/Per/They
+- 😄 Pronouns: She/Her
 - ⚡ Fun fact: I like to play video games all day
 
 <!---
